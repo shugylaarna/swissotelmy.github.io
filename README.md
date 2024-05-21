@@ -1,0 +1,1 @@
+# swissotelmy.github.io
